@@ -1,7 +1,8 @@
 # al-Quran
 A repository to learn everything from Allah
 
-## Peta Kehidupan Manusia dalam al-Quran
+## Sentuh dia tepat di hatinya maka dia akan menjadi milikmu untuk selamanya
+Sentuh Quran dengan bacaan, Ujamkan dirimu padanya, Lakukan akad dalam jiwamu maka dia akan menemanimu sampai kembali kepada Rabb mu.
 ### QS 2 : 2
 Kitab ini tidak ada ragu di dalamnya. Segala apa yang disampaikan, segala apa yang diceritakan, segala apa yang dijanjikan, kesemuanya itu adalah yang benar dari Allah SWT malah menjadi petunjuk bagi orang orang yang bertaqwa. Kemudian pada ayat 3 hingga 5. Allah menerangkan ciri ciri orang yang bertaqwa.
 
