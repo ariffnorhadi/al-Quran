@@ -28,6 +28,7 @@ Tegasnya, tidak mungkin orang yang solatnya benar itu boleh mengeluarkan kata ka
 - **QS 15 : 9** – Al Quran itu sendiri disebutkan sebagai dzikir
 - **QS 4 : 103** – kalimat taiyibah seperti tahmid, tasbih, takbir dsb juga disebut sebagai dzikir
 - **QS 54 : 17, 22, 32 dan 40** – para penghafal Al Quran itu juga disebutkan sebagai dzikir. Malah disebutkan sebanyak empat kali dalam Al Quran
+
 Tapi apa fungsi dzikir? Tafsirnya di QS 13 : 28
 > Yakinkanlah dari hati dan jiwa mu itu, jika dzikir mu benar di hadapan Allah SWT , hatimu pasti akan tenang
 
