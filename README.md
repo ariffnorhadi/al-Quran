@@ -9,7 +9,7 @@ Kitab ini tidak ada ragu di dalamnya. Segala apa yang disampaikan, segala apa ya
 ### QS 2 : 3
 “ Orang orang yang beriman dengan perkara ghaib dan dia menyempurnakan **solat**nya dan meng**infak**kan sebahagian daripada rezeki yang Allah berikan pada mereka ”
 
-**Solat**
+#### Solat
 Dalam ayat ini Allah telah menampilkan perkataan solat dalam bentuk **makrifat** dan dalam bentuk **jamak tanpa batas**. Ini bermakna ia merujuk kepada semua jenis solat tanpa batas. Jadi seharusnya orang orang yang bertaqwa itu bukan hanya melaksanakan solat lima waktu yang fardhu sahaja. Sebaliknya mereka berusaha untuk melaksanakan semua jenis solat sunnah yang pernah Nabi Muhammad SAW kerjakan.\
 Selain itu, perkataan solat dalam ayat ini berbentuk **makrifat**. Maknanya khusus. Ada aturan. Tidak boleh bebas dilakukan dan tidak boleh bebas ditinggalkan. Dilaksanakan sesuai dengan tuntunan Nabi Muhammad SAW.
 
