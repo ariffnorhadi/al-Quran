@@ -17,7 +17,7 @@ QS 2 : 43, 45
 
 Oleh itu, solat yang kita kerjakan mestilah benar dan sesuai dengan tuntunan Nabi Muhammad SAW. Dalam Al Quran, Allah memberikan kita beberapa indikator atau petunjuk yang boleh kita semak sama ada solat yang kita kerjakan itu benar mahupun tidak
 1. Orang yang solatnya betul mesti jadi orang baik
-- **QS 29 : 45**
+- **QS 29 : 45**\
 Orang yang solatnya benar kata Allah pasti akan mencegah pelakunya dari dua sumber keburukan iaitu Fahsyaa’ dan Munkar.
 Fashyaa’ ialah keburukan yang bersumberkan dari syahwat. Misal, kata kata jelek, memandang yang haram, mendengar yang haram, pornografi, pornoaksi.. dan lain lain.
 Munkar pula merupakan keburukan yang diingkari oleh hati yang bersumberkan dari nafsu perut dan akal. Misalnya mencuri, rasuah, berselisih, merompak, membunuh dan lain lain.
