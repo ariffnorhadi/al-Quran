@@ -24,6 +24,7 @@ Orang yang solatnya benar kata Allah pasti akan mencegah pelakunya dari dua sumb
 **Munkar** pula merupakan keburukan yang diingkari oleh hati yang bersumberkan dari nafsu perut dan akal. Misalnya mencuri, rasuah, berselisih, merompak, membunuh dan lain lain.
 
 Tegasnya, tidak mungkin orang yang solatnya benar itu boleh mengeluarkan kata kata yang jelek mahupun kotor. Bahkan juga mustahil bagi orang yang solat itu, dia mengerjakan maksiat mahupun perkara perkara yang munkar.
+
 2. Allah kata, kalau solat nya betul, mesti akan tenang
 - [**QS 20 : 14**](https://quran.com/20/14) – solat ialah dzikir
 - [**QS 15 : 9**](https:/quran.com/15/9) – Al Quran itu sendiri disebutkan sebagai dzikir
