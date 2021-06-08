@@ -18,13 +18,13 @@ QS 2 : 43, 45
 
 Oleh itu, solat yang kita kerjakan mestilah benar dan sesuai dengan tuntunan Nabi Muhammad SAW. Dalam Al Quran, Allah memberikan kita beberapa indikator atau petunjuk yang boleh kita semak sama ada solat yang kita kerjakan itu benar mahupun tidak
 1. Orang yang solatnya betul mesti jadi orang baik
-- **QS 29 : 45**\
+- [**QS 29 : 45**](https://quran.com/29/45)\
 Orang yang solatnya benar kata Allah pasti akan mencegah pelakunya dari dua sumber keburukan iaitu Fahsyaa’ dan Munkar.
 Fashyaa’ ialah keburukan yang bersumberkan dari syahwat. Misal, kata kata jelek, memandang yang haram, mendengar yang haram, pornografi, pornoaksi.. dan lain lain.
 Munkar pula merupakan keburukan yang diingkari oleh hati yang bersumberkan dari nafsu perut dan akal. Misalnya mencuri, rasuah, berselisih, merompak, membunuh dan lain lain.\
 Tegasnya, tidak mungkin orang yang solatnya benar itu boleh mengeluarkan kata kata yang jelek mahupun kotor. Bahkan juga mustahil bagi orang yang solat itu, dia mengerjakan maksiat mahupun perkara perkara yang munkar.
 2. Allah kata, kalau solat nya betul, mesti akan tenang
-- **QS 20 : 14** – solat ialah dzikir
+- [**QS 20 : 14**](https://quran.com/20/14) – solat ialah dzikir
 - **QS 15 : 9** – Al Quran itu sendiri disebutkan sebagai dzikir
 - **QS 4 : 103** – kalimat taiyibah seperti tahmid, tasbih, takbir dsb juga disebut sebagai dzikir
 - **QS 54 : 17, 22, 32 dan 40** – para penghafal Al Quran itu juga disebutkan sebagai dzikir. Malah disebutkan sebanyak empat kali dalam Al Quran
