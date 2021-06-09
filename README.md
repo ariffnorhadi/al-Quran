@@ -34,4 +34,10 @@ Tegasnya, tidak mungkin orang yang solatnya benar itu boleh mengeluarkan kata ka
 Tapi apa fungsi dzikir? Tafsirnya di [**QS 13 : 28**](https://quran.com/13/28)
 > Yakinkanlah dari hati dan jiwa mu itu, jika dzikir mu benar di hadapan Allah SWT , hatimu pasti akan tenang
 
+#### 3. Orang yang solatnya betul pasti akan dimudahkan setiap urusan kehidupannya bahkan akan diberikan rezeki tanpa diduga
+- [**QS 65: 2 - 3**](https://quran.com/65/2-3)
+> sesiapa sahaja yang meningkatkan **taqwa** kepada Allah SWT, Kami akan berikan kepada mereka jalan penyelesaian dalam apa jua jenis masalah yang sedang mereka hadapi
+Ketika Allah menjanjikan jalan penyelesaian (**Makhraja**) kepada orang yang bertaqwa, bentuk perkataannya Allah gambarkan dalam bentuk umum dan tidak spesifik.\
+Seakan akan Allah nak sampaikan kepada kita bahawa\
+katakanlah ada masalah dalam kehidupan kita yang tidak pernah tuntas sampai ke hari ini, cukup tingkatkan taqwa kita di hadapan Allah SWT dan Allah akan memberikan jalan penyelesaian kepada kita dalam apa jua bentuk kesulitan yang kita sedang hadapi. Jangankan bentuk kemudahan urusan yang Allah jaminkan, bahkan urusan rezeki yang kita tidak cari pun Allah akan kirimkan kepada kita untuk kita nikmati dalam kehidupan kita.
 
