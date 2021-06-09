@@ -35,7 +35,7 @@ Tapi apa fungsi dzikir? Tafsirnya di [**QS 13 : 28**](https://quran.com/13/28)
 > Yakinkanlah dari hati dan jiwa mu itu, jika dzikir mu benar di hadapan Allah SWT , hatimu pasti akan tenang
 
 #### 3. Orang yang solatnya betul pasti akan dimudahkan setiap urusan kehidupannya bahkan akan diberikan rezeki tanpa diduga
-- [**QS 65: 2 - 3**](https://quran.com/65/2-3)
+- [**QS 65 : 2 - 3**](https://quran.com/65/2-3)
 > sesiapa sahaja yang meningkatkan **taqwa** kepada Allah SWT, Kami akan berikan kepada mereka jalan penyelesaian dalam apa jua jenis masalah yang sedang mereka hadapi
 
 Ketika Allah menjanjikan jalan penyelesaian (**Makhraja**) kepada orang yang bertaqwa, bentuk perkataannya Allah gambarkan dalam bentuk umum dan tidak spesifik.
