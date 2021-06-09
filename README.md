@@ -39,11 +39,12 @@ Tapi apa fungsi dzikir? Tafsirnya di [**QS 13 : 28**](https://quran.com/13/28)
 > sesiapa sahaja yang meningkatkan **taqwa** kepada Allah SWT, Kami akan berikan kepada mereka jalan penyelesaian dalam apa jua jenis masalah yang sedang mereka hadapi
 
 Ketika Allah menjanjikan jalan penyelesaian (**Makhraja**) kepada orang yang bertaqwa, bentuk perkataannya Allah gambarkan dalam bentuk umum dan tidak spesifik.\
-Seakan akan Allah nak sampaikan kepada kita bahawa katakanlah ada masalah dalam kehidupan kita yang tidak pernah selesai sampai ke hari ini, cukup tingkatkan taqwa kita di hadapan Allah SWT dan Allah akan memberikan jalan penyelesaian kepada kita dalam apa jua bentuk kesulitan yang kita sedang hadapi. Jangankan bentuk kemudahan urusan yang Allah jaminkan, bahkan urusan rezeki yang kita tidak cari pun Allah akan kirimkan kepada kita untuk kita nikmati dalam kehidupan kita.
+Seakan akan Allah nak sampaikan kepada kita bahawa katakanlah ada masalah dalam kehidupan kita yang tidak pernah selesai sampai ke hari ini, cukup tingkatkan taqwa kita di hadapan Allah SWT dan Allah akan memberikan **jalan penyelesaian** kepada kita dalam apa jua bentuk kesulitan yang kita sedang hadapi.\
+Jangankan bentuk kemudahan urusan yang Allah jaminkan, **bahkan urusan rezeki** yang kita tidak cari pun Allah akan kirimkan kepada kita untuk kita nikmati dalam kehidupan kita.
 
 Bagaimanakah caranya untuk kita tingkatkan taqwa kita di hadapan Allah SWT ? Perkataan taqwa pertama telah disebutkan di [**QS 2 : 2**](https://quran.com/2/2) . Siapa dia orang taqwa? Ternyata ayat [3](https://quran.com/2/3) nya menunjukkan bahawa mereka pasti akan menyempurnakan solat mereka.
 
-Taqwa = **Solution** , 
+Taqwa = **Solution**\
 Sempurnakanlah dan tingkatkan kuantiti ibadah solat kita untuk meningkatkan taqwa di hadapan Allah SWT.
 
 
