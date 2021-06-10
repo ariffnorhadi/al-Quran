@@ -62,6 +62,6 @@ Tetapi, kejayaan dan kebahagiaan yang sangat sukar untuk dilepaskan itu, berubah
 - [**QS 23 : 1**](https://quran.com/23/1)
 > Sungguh, orang-orang yang iman nya betul di hadapan Allah SWT mesti akan mengenggam kejayaan dan kebahagiaan dalam kehidupannya
 - [**QS 23 : 2**](https://quran.com/23/2)
-> Iaitu mereka yang khusyuk dalam solatnya [**QS 2 : 45 - 46](https://quran.com/2/45-46)
+> Iaitu mereka yang khusyuk dalam solatnya [**QS 2 : 45 - 46**](https://quran.com/2/45-46)
 
 
