@@ -48,4 +48,20 @@ Bagaimanakah caranya untuk kita tingkatkan taqwa kita di hadapan Allah SWT ? Per
 Taqwa = **Solution**\
 Sempurnakanlah dan tingkatkan kuantiti ibadah solat kita untuk meningkatkan taqwa di hadapan Allah SWT.
 
+#### 4. Orang yang solatnya betul mesti akan berjaya dan bahagia
+Dalam kehidupan, mesti ada yang kaya tapi tak tenteram, tapi ada yang miskin dan sentiasa tenang dalam hidupnya.
+
+Orang-orang yang berjaya dalam hidup sama ada tak tenteram atau tenteram, disebut dengan **Fauz**.\
+Manakala bagi orang-orang yang bahagia meskipun kaya atau miskin, disebut dengan **Farihah** dalam al-Quran.
+
+Namun demikian, orang-orang yang berjaya dalam hidup + bahagia/tenang/aman/tenteram, disebut dengan **Falah**. Kita boleh dengar perkataan ini sekurang-kurangnya lima kali sehari sewaktu azan dilaungkan di masjid atau surau yang berhampiran.
+
+Tetapi, kejayaan dan kebahagiaan yang sangat sukar untuk dilepaskan itu, berubah dari kata Falah kepada **Aflah**.\
+**Aflah** = kejayaan dan kebahagiaan yang digenggam yang susah untuk dilepaskan.
+
+- [**QS 23 : 1**](https://quran.com/23/1)
+> Sungguh, orang-orang yang iman nya betul di hadapan Allah SWT mesti akan mengenggam kejayaan dan kebahagiaan dalam kehidupannya
+- [**QS 23 : 2**](https://quran.com/23/2)
+> Iaitu mereka yang khusyuk dalam solatnya [**QS 2 : 45 - 46](https://quran.com/2/45-46)
+
 
