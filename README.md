@@ -64,4 +64,7 @@ Tetapi, kejayaan dan kebahagiaan yang sangat sukar untuk dilepaskan itu, berubah
 - [**QS 23 : 2**](https://quran.com/23/2)
 > Iaitu mereka yang khusyuk dalam solatnya [**QS 2 : 45 - 46**](https://quran.com/2/45-46)
 
+## Puasa
+## Zakat
+## Haji
 
